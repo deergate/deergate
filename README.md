@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @deergate
 - 🌱 I’m currently 努力挣钱ing...
-- 💞️ I’m missing a girl,  maybe her beautiful name could be ...
 - 📫 How to reach me ,ennnnnn, email will be a nice idea. As expected, it's deer-gate@outlook.com.
 
 <!---
